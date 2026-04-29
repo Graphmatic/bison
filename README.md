@@ -1,1 +1,2 @@
-Grant land to native Americans, It success for bison, so why not?
+HUMAN BEFORE BEEF
+Grant land to native Americans in Europe, It success for bison, so why not?
